@@ -7,7 +7,7 @@
     <a href="https://slot-demo.ummetro.ac.id/">https://slot-demo.ummetro.ac.id/</a>
       <a href="https://data-hk.kitsupervivencia.net/">https://data-hk.kitsupervivencia.net/</a>
         <a href="https://slot-gacor-4d.plti.or.id/">https://slot-gacor-4d.plti.or.id/</a>
-          <a href="https://dpmd.lamandaukab.go.id/data-macau/">https://dpmd.lamandaukab.go.id/data-macau/</a>
+          <a href="http://e-bkpsdm.sampangkab.go.id/slot-gacor/">http://e-bkpsdm.sampangkab.go.id/slot-gacor/</a>
             <a href="https://kelurahantrate.gresikkab.go.id/data-sgp/">https://kelurahantrate.gresikkab.go.id/data-sgp/</a>
               <a href="https://www.slot-gacor.adia.uinib.ac.id/">https://www.slot-gacor.adia.uinib.ac.id/</a>
 </div>
