@@ -10,4 +10,7 @@
           <a href="http://e-bkpsdm.sampangkab.go.id/slot-gacor/">http://e-bkpsdm.sampangkab.go.id/slot-gacor/</a>
             <a href="https://kelurahantrate.gresikkab.go.id/data-sgp/">https://kelurahantrate.gresikkab.go.id/data-sgp/</a>
               <a href="https://www.slot-gacor.adia.uinib.ac.id/">https://www.slot-gacor.adia.uinib.ac.id/</a>
+<a href="https://eprala.poltekpelbarombong.ac.id/slot-gacor/">https://eprala.poltekpelbarombong.ac.id/slot-gacor/</a>
+<a href="https://fkip.ummetro.ac.id/assets/slot-pulsa/">https://fkip.ummetro.ac.id/assets/slot-pulsa/</a>
+<a href="https://pkmsumbermalang.situbondokab.go.id/css/slot-pulsa/">https://pkmsumbermalang.situbondokab.go.id/css/slot-pulsa/</a>
 </div>
